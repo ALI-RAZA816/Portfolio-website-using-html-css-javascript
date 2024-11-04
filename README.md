@@ -14,11 +14,6 @@ Tips for showcasing your work and personal brand effectively
 
 📅 Join me on this creative journey! Don’t forget to like, subscribe, and hit the notification bell to stay updated with more tutorials!
 
-👉 Resources:
-
-Download the starter files here: [link]
-Follow along with the code snippets in the video description.
-Let’s build something amazing together! 🎉
 
 
 
